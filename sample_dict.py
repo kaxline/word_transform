@@ -1,0 +1,14 @@
+smart 
+start 
+skart 
+blart
+heart
+stark
+stack
+slack
+black
+blank
+bland
+brand
+braid
+brain
